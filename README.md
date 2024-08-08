@@ -2,13 +2,13 @@
 
 `11 perce ~ Alien: Romulus 2024 HU video - Alien: Romulus teljes film magyarul - Alien: Romulus teljes film magyar videón - Teljes film magyarul és jó minőségben - Teljes film online (ingyenesen) magyarul.
 
-<b><i><h3> <a href="https://dmov.fun/movie/945961/alien-romulus-gityub" rel="nofollow">◉🎬 Online nézd meg most ►► Alien: Romulus Teljes Film Magyarul</a></b></i></h>
+<b><i><h3> <a href="https://dmov.fun/hu/movie/945961/alien-romulus-gityub" rel="nofollow">◉🎬 Online nézd meg most ►► Alien: Romulus Teljes Film Magyarul</a></b></i></h>
 
-<b><i><h> <a href="https://dmov.fun/movie/945961/alien-romulus-gityub" rel="nofollow">◉🎬 nézd HD meg most ►► Alien: Romulus Teljes Film Online HD</a></b></i></h3>
+<b><i><h> <a href="https://dmov.fun/hu/movie/945961/alien-romulus-gityub" rel="nofollow">◉🎬 nézd HD meg most ►► Alien: Romulus Teljes Film Online HD</a></b></i></h3>
 
 | 𝟜𝕂 𝕌ℍ𝔻 | 𝟙𝟘𝟠𝟘ℙ 𝔽𝕌𝕃𝕃 ℍ𝔻 | 𝟟𝟚𝟘ℙ ℍ𝔻 | 𝕄𝕂𝕍 | 𝕄ℙ𝟜 | 𝔻𝕍𝔻 | 𝔹𝕝𝕦-ℝ𝕒𝕪 |
 
-<a href="https://dmov.fun/movie/945961/alien-romulus-gityub" rel="nofollow"><img src="https://camo.githubusercontent.com/917e6ed5c302499242165dcc02bdbce85c075fd21b35918eb9c0b771855261b8/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f6232343966395f61646163386637306662336634356238383639313639366337376465313866337e6d76322e676966" alt="Foo" style="max-width: 100%;"></a>
+<a href="https://dmov.fun/hu/movie/945961/alien-romulus-gityub" rel="nofollow"><img src="https://camo.githubusercontent.com/917e6ed5c302499242165dcc02bdbce85c075fd21b35918eb9c0b771855261b8/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f6232343966395f61646163386637306662336634356238383639313639366337376465313866337e6d76322e676966" alt="Foo" style="max-width: 100%;"></a>
 
 Overview: A mindent eldöntő, minden eddiginél nagyobb háború nem ért véget azzal, hogy Kong és Godzilla szembetalálkozott és összemérte az erejét. Mert az ember most már kénytelen belenyugodni, hogy nem ő a legerősebb a földön. És nem ismeri igazán a saját világát: várja még néhány eddig rejtve maradt meglepetés. Bujkál még valami a föld alatt, ami felébredt, és pusztítani akar. Az emberiség képtelen megállítani. Talán Kong is képtelen volna. És Godzilla is. De ha ők ketten összefognának, akkor esetleg megmenekülhetnének ők is és mi is…
 
